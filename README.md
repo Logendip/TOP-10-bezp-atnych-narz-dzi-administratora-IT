@@ -1,1 +1,1 @@
-# TOP-10-bezp-atnych-narz-dzi-administratora-IT
+TOP 10 bezpłatnych narzędzi administratora IT
